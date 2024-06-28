@@ -17,3 +17,14 @@ Innovative software projects
 📫 How to Reach Me
 Email: msshatnawi5@gmail.com
 LinkedIn: Your LinkedIn Profile
+ORCID: 0000-0003-1505-5891
+SciProfiles: 3044713
+⚡ Fun Fact
+I enjoy [hobby or interest unrelated to work].
+
+📊 GitHub Stats
+
+📝 Latest Blog Posts
+Blog Post 1
+Blog Post 2
+🤝 Connect with Me
